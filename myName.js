@@ -1,1 +1,0 @@
-Steven Paul Gray
